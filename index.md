@@ -50,7 +50,7 @@
 Can you analyze this song: key, chord progression, melody, production ethic and speculate using that minimal info as to why it makes me feel extremely nostalgic. its on loop & shit for 2 weeks and can't get enough. if you can also analyze the video (not primary goal) for extra clue, take it away! 
 
 ## 1
-This is a breakdown of **Kehlani's "Out The Window"**, analyzing why it hits that specific "nostalgia" button so hard for you.
+This is a breakdown of **Kehlani's "Out The Window"**, analyzing why it hits that specific "[nostalgia](https://ukb-dt.github.io/music-01/)" button so hard for you.
 
 ### **The Song Analysis**
 
