@@ -46,7 +46,7 @@
 </style>
 
 
-# G
+# [G](https://ukb-dt.github.io/d-dt/)
 Can you analyze this song: key, chord progression, melody, production ethic and speculate using that minimal info as to why it makes me feel extremely nostalgic. its on loop & shit for 2 weeks and can't get enough. if you can also analyze the video (not primary goal) for extra clue, take it away! 
 
 ## 1
